@@ -10,7 +10,7 @@ Encuéntreme en [LinkedIn](https://co.linkedin.com/in/normansimonr).
 
 __Software__: R
 
-Para ver la explicación económica, puede dirigirse a [este link](http://vasijadeideas.blogspot.com/2015/08/cuanto-ganamos-los-colombianos.html)
+Para ver la explicación económica, puede dirigirse a [este link](http://vasijadeideas.blogspot.com/2015/09/cuanto-ganamos-los-colombianos.html)
 
 Las definiciones de clases sociales han sido hechas de la siguiente manera:
 

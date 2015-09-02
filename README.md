@@ -2,7 +2,7 @@
 
 # Análisis de la distribución de ingresos en Colombia 2014.
 
-Por Vasija de Ideas ([vasijadeideas.blogspot.com](vasijadeideas.blogspot.com))
+Por Vasija de Ideas: [vasijadeideas.blogspot.com](http://vasijadeideas.blogspot.com)
 
 __Investigador:__ Norman Simón Rodríguez Cano, MSc.
 
